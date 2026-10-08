@@ -223,4 +223,4 @@ DANCE is the official full version available for free download, with all feature
 Don’t wait any longer! Download DANCE now and take your first step towards mastering the art of ballroom dancing!
 
 ---
-**Last updated:** 2026-10-07 20:28:14 UTC
+**Last updated:** 2026-10-08 00:47:27 UTC
